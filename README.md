@@ -1,1 +1,1 @@
-[Digital playground]([https://example.com](https://very-junk-journal.glitch.me/)
+[Digital playground](https://very-junk-journal.glitch.me/)
